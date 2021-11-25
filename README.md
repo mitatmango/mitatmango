@@ -1,2 +1,2 @@
 - 👋 Hello my fellow Springsters, I’m **@mitatmango** aka **Mit Shah**
-- 📫 How to reach me at my cell/WhatsApp @ 9898742478
+- 📫 Reach me at my cell/WhatsApp @ 9898742478
